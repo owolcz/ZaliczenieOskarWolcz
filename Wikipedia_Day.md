@@ -1,0 +1,3 @@
+# Dzień Wikipedii
+
+Dzień Wikipedii (ang. Wikipedia Day) – 15 stycznia, rocznica założenia Wikipedii, przedsięwzięcia internetowego, którego celem jest stworzenie największej i wielojęzycznej encyklopedii. W środowisku wikipedystów dzień ten jest nieformalnym świętem całej społeczności, liczącej na początku 2006 roku kilkadziesiąt tysięcy autorów. 15 stycznia 2001 roku została zapoczątkowana angielska wersja serwisu, pierwsza z prawie trzystu wersji językowych Wikipedii.
