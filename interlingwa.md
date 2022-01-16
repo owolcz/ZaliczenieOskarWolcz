@@ -7,3 +7,17 @@ Znajomość języków zawsze będzie w cenie. Dzięki temu porozumiemy się zagr
 ## Fundamenty fenomenu interlingwy
 
 Starannie wyselekcjonowane słownictwo, przejrzyste zasady słowotwórstwa oraz uproszczona gramatyka są fundamentami fenomenu Interlingwy. Umożliwia to zrozumienie tego sztucznego języka przez miliony osób, a według opinii specjalistów z Międzynarodowego Stowarzyszenia Języka Pomocniczego, na naukę wystarczy 15 dni. Nawet jeśli ktoś nie ma zdolności językowych, to i tak powinien opanować Interlingwę w ciągu miesiąca.
+
+## Korzyści z przyswojenia interlingwy
+
+Poniżej przedstawiamy najważniejsze korzyści z przyswojenia Interlingwy:
+
+- Zyskujemy skuteczne narzędzie międzynarodowej komunikacji językowej z obywatelami Francji, Hiszpanii czy Włoch. Zarówno w kontaktach „face to face”, jak i w czytaniu stron internetowych czy czasopism.
+
+- Znacznie łatwiej będzie nam się nauczyć wybranego języka, np. włoskiego, hiszpańskiego, francuskiego czy angielskiego.
+
+- Interlingwa pozwala poznać klasyczne korzenie języka polskiego, zarówno jego pochodzenie, słownictwo jak i zaskakujące związki między wyrazami.
+
+- Niewielki wkład pracy w poznanie Interlingwy jest inwestycją we własne wykształcenie i poziom kultury.
+
+Światowy Dzień Interlingwy jest najlepszą okazją do tego, by zainwestować w swój rozwój osobisty. Przecież możemy się uczyć podczas jazdy pociągiem czy czekając w kolejce do lekarza. Korzyści z pewnością są tego warte.
